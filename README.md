@@ -1,2 +1,2 @@
-# Praktyki---sierpie-2025
+# Praktyki-sierpien-2025
 Grzegorz Zawada
